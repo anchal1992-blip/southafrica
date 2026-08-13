@@ -1,2 +1,2 @@
 # southafrica
-south Africa travel plan guide by Wandering Stampers
+South Africa travel plan guide by Wandering Stampers
